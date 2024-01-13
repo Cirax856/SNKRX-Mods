@@ -1,1 +1,1 @@
-"# SNKRX Mods" 
+# SNKRX Mods
